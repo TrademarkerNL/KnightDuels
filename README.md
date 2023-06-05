@@ -14,4 +14,4 @@
 
 - English Only!           
 
-<a id="Click here to join discord server!">https://discord.gg/knightduels</>
+<a id="Hyperlink example - Mordhau Discord">https://discord.gg/mordhau</>

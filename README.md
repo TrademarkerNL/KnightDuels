@@ -4,12 +4,12 @@
 
 *Rules!*
 
-1. NO FFA
+- NO FFA
 
-2. No Hacking or using 3rd Party Software
+- No Hacking or using 3rd Party Software
 
-3. No toxicity or racism
+- No toxicity or racism
 
-4. Don't TP abuse
+- Don't TP abuse
 
-5. English Only!           
+- English Only!           

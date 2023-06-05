@@ -14,6 +14,6 @@
 
 - English Only!           
 
-<a id="Hyperlink"https://discord.gg/mordhau>
+https://discord.gg/knightduels
 
 ![Seymour](https://cdn.discordapp.com/attachments/912886635438420021/1115304502178889788/Screenshot_342.png)

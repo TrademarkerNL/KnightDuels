@@ -14,4 +14,4 @@
 
 - English Only!           
 
-<a id="Hyperlink example - Mordhau Discord">
+<a id="Hyperlink example - Mordhau Discord">https://discord.gg/mordhau</>

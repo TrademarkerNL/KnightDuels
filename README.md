@@ -13,3 +13,5 @@
 - Don't TP abuse
 
 - English Only!           
+
+<a id="Click here to join discord server!">https://discord.gg/knightduels</>

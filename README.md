@@ -10,7 +10,7 @@
 
 - No toxicity or racism
 
-- Don't TP abuse
+- No TP abuse
 
 - English Only!           
 

@@ -1,4 +1,4 @@
-# **Welcome to Knight Duels!**
+#                        **Welcome to Knight Duels!**
 
 ***Thanks for choosing to play on Knight Duels, we hope you have fun and enjoy your stay.***
 
@@ -14,9 +14,4 @@
 
 - English Only!           
 
-
-***There's more rules on our discord, click the picture down below to join!***
-
-If the picture doesn't work copy this link into your browser to join the discord: https://discord.gg/knightduels
-
-[![Seymour](https://cdn.discordapp.com/attachments/912886635438420021/1115304502178889788/Screenshot_342.png)](https://discord.gg/knightduels)
+<a id="Hyperlink example - Mordhau Discord">https://discord.gg/knightduels</>

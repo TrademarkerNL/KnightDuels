@@ -1,1 +1,1 @@
-![](https://cdn.discordapp.com/attachments/1109506734470467707/1132421158982135859/Welcome_to_Knight_Duels20.png)     <a id="Click here to join our discord!">https://discord.gg/knightduels</>                                                         
+![](https://cdn.discordapp.com/attachments/1109506734470467707/1132423823480868975/Welcome_to_Knight_Duels21.png)     <a id="Click here to join our discord!">https://discord.gg/knightduels</>                                                         

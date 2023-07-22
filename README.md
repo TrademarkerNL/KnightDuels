@@ -1,17 +1,1 @@
-#                        **Welcome to Knight Duels!**
-
-***Thanks for choosing to play on Knight Duels, we hope you have fun and enjoy your stay.***
-
-*Rules!*
-
-- NO FFA
-
-- No Hacking or using 3rd Party Software
-
-- No toxicity or racism
-
-- No TP abuse
-
-- English Only!           
-
-<a id="Hyperlink example - Mordhau Discord">https://discord.gg/knightduels</>
+![](https://cdn.discordapp.com/attachments/1109506734470467707/1132326824777621574/Schermafbeelding_2023-07-22_170206.png)                                                                         <a id="Serveur discord Multi Gaming français - Rejoins nous !">https://discord.gg/gEyThGXzBQ</>

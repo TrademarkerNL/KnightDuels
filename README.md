@@ -1,1 +1,1 @@
-<a href="https://discord.gg/knightduels">    ![](https://cdn.discordapp.com/attachments/1109506734470467707/1132326824777621574/Schermafbeelding_2023-07-22_170206.png) </a>                                                                         
+<a href="https://discord.gg/knightduels">    ![](https://cdn.discordapp.com/attachments/1109506734470467707/1132333613363494992/Schermafbeelding_2023-07-22_172853.png) </a>                                                                         

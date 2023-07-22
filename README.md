@@ -1,1 +1,1 @@
-![](https://cdn.discordapp.com/attachments/1109506734470467707/1132326824777621574/Schermafbeelding_2023-07-22_170206.png)                                                                         <a id="Serveur discord Multi Gaming français - Rejoins nous !">https://discord.gg/gEyThGXzBQ</>
+<a>https://discord.gg/gEyThGXzBQ    ![](https://cdn.discordapp.com/attachments/1109506734470467707/1132326824777621574/Schermafbeelding_2023-07-22_170206.png) </>                                                                         

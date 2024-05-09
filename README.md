@@ -1,1 +1,2 @@
-![](https://cdn.discordapp.com/attachments/1133511255974477864/1228980572777611264/MOTD-MORDHAU-6.png?ex=662e0459&is=661b8f59&hm=1c59d60c11ade5d6e0f2dc7913e8863d3e4a6147a746e4deb9bc39b64e979f61&)                                                                              <a id="Serveur discord Multi Gaming français - Rejoins nous !">https://discord.gg/symbiot</>
+![Seymour](https://cdn.discordapp.com/attachments/288528119525146635/8907466
+48089722940/seymour-plush.jpg)                                                                             <a id="Serveur discord Multi Gaming français - Rejoins nous !">https://discord.gg/symbiot</>
